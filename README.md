@@ -1,0 +1,1 @@
+# typoBot.io
